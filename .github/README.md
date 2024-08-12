@@ -8,7 +8,7 @@
   <img src="https://t.me/Aftab_muntaha_love_group">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ](https://t.me/Aftab_muntaha_love_group)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Music ❣️❣️💌](https://t.me/Aftab_muntaha_love_group)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
