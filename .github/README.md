@@ -23,7 +23,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Music ❣️❣️�
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://telegra.ph/file/4e7c8cbb0d92739a3ea70.jpg">
+  <img src="[(https://files.catbox.moe/h4fiku.jpg)">
 </p>
 
 <p align="center">
