@@ -23,7 +23,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Music ❣️❣️�
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="[(https://files.catbox.moe/h4fiku.jpg)">
+  <img src="https://files.catbox.moe/h4fiku.jpg">
 </p>
 
 <p align="center">
