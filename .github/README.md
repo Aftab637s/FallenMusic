@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ᴍᴜsɪᴄ 」──
+    ──「 ᴀʟɪᴢᴀ ✘ ᴍᴜsɪᴄ 」──
 </h2>
 
 <p align="center">
   <img src="https://t.me/Aftab_muntaha_love_group">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Music ❣️❣️💌](https://t.me/Aftab_muntaha_love_group)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [Music ❣️❣️💌](https://t.me/CINEMAS_MOVIES_TIMES)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
